@@ -1,3 +1,0 @@
-# IOS
-# IOS
-# IOS
